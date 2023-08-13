@@ -1,6 +1,6 @@
 ## Stream Protocol
 
-##### Empowering Businesses and Financial Inclusion
+#### Empowering Businesses and Financial Inclusion
 
 #### About Us
 
